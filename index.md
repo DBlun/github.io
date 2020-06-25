@@ -9,3 +9,5 @@ Avatar Aang (Chinese: 安昂; pinyin: Ān Áng) is a fictional character and the
 * At 12 years old, Aang is the series' reluctant hero, spending a century in suspended animation in an iceberg before joining new friends Katara and Sokka on a quest to master the elements and save their world from the imperialist Fire Nation.
 
 > Life happens wherever you are, whether you make it or not.
+
+<img src="https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2F68.media.tumblr.com%2F4fce51ac7d2ed61c852be0a8658fc19c%2Ftumblr_inline_oi58c5rMBO1qhyc5u_1280.png&f=1&nofb=1"/>
