@@ -7,3 +7,5 @@ Avatar Aang (Chinese: 安昂; pinyin: Ān Áng) is a fictional character and the
 * He is an incarnation of the "Avatar", the spirit of light and peace manifested in human form. 
 * As the Avatar, Aang controls all four elements (water, earth, fire, and air) and is tasked with keeping the Four Nations at peace. 
 * At 12 years old, Aang is the series' reluctant hero, spending a century in suspended animation in an iceberg before joining new friends Katara and Sokka on a quest to master the elements and save their world from the imperialist Fire Nation.
+
+> Life happens wherever you are, whether you make it or not.
